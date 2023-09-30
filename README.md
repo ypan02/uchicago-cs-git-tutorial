@@ -1,1 +1,1 @@
-Patty Yue Pan
+Patty Yue Pan, CNET: yuepan
